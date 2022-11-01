@@ -1,4 +1,4 @@
-- Hi, I’m Tarek Elsayed ☑
+- I’m Tarek Elsayed ☑
 - 💜 I’m currently learning Cyper Security & Programming
 - 📫 How to reach me mm.rx000@proton.me
 
